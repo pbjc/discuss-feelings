@@ -15,7 +15,9 @@ o but my darling wat if u fly??
 
 Arnav
 -----
-Zootopia was a phenomenal movie. This is a phenomenal idea. There are bad things happening in this world, but there are also good things happening. It's important to recognize all of them.
+Zootopia was a phenomenal movie. This is a phenomenal idea. There are bad
+things happening in this world, but there are also good things happening. It's
+important to recognize all of them.
 
 Raymond
 -------
@@ -26,7 +28,7 @@ kinda annoys me about it is that once you add a Miitomo friend through
 Facebook, they don't tell you their Facebook profile anymore, so I can't  
 remember who "Zephyr", one of my Miitomo friends is. He's got hair that spikes  
 to the side. I suspect he's one of my high school friends, but I have zero  
-recollection of adding him, probably because I did it when I was supposed to be  
+recollection of adding him, probably because I did it when I was supposed to be 
 paying attention in class. I hope I can get closure on this important issue
 soon.
 
@@ -61,7 +63,7 @@ April 8, 2016
 =============
 
 algo discussion gold star list:  
-Keivaun Waugh 
+Keivaun Waugh (I feel honored to be at the top of the list)
 Jacob van Geffen  
 Arjun Karpur  
 Stephen Ngo  
