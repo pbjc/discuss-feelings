@@ -1,7 +1,33 @@
 discuss-feelings
 ================
-
 Talk about whatever. Do it daily. Get t-shirt.
+
+
+April 8, 2016
+=============
+
+algo discussion gold star list:  
+Keivaun Waugh (I feel honored to be at the top of the list)  
+Jacob van Geffen  
+Arjun Karpur  
+Stephen Ngo  
+Steven Chen  
+Sidharth Kapur  
+Greg McDonald  
+Michael Gregory  
+Virin Tamprateep  
+Guneet Dhillon  
+Sam Maynard
+
+Angela
+------
+hai guyz. i know i h8 on a certain org all teh time, but i'm going to be running 4 an officer position. pls vote 4 me. dvmbfairy2016
+
+btw the 1d baby conspiracy theory is insane. i highly reccommend that every1 read it
+
+Anjie
+-----
+waking up @ noon was the best decision i ever made f\*ck algo
 
 April 7, 2016
 =============
@@ -60,29 +86,3 @@ interesting things I read today/yesterday:
 https://medium.com/@ian/the-real-value-of-side-projects-4d30c1ea4283   
 https://10kloc.wordpress.com/2016/04/03/effective-code-reviews/   
 http://thecodist.com/article/my-biggest-regret-as-a-programmer   
-
-April 8, 2016
-=============
-
-algo discussion gold star list:  
-Keivaun Waugh (I feel honored to be at the top of the list)  
-Jacob van Geffen  
-Arjun Karpur  
-Stephen Ngo  
-Steven Chen  
-Sidharth Kapur  
-Greg McDonald  
-Michael Gregory  
-Virin Tamprateep  
-Guneet Dhillon  
-Sam Maynard
-
-Angela
-------
-hai guyz. i know i h8 on a certain org all teh time, but i'm going to be running 4 an officer position. pls vote 4 me. dvmbfairy2016
-
-btw the 1d baby conspiracy theory is insane. i highly reccommend that every1 read it
-
-Anjie
------
-waking up @ noon was the best decision i ever made f*ck algo
