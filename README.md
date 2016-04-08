@@ -34,6 +34,10 @@ Anjie
 -----
 waking up @ noon was the best decision i ever made f\*ck algo
 
+Chris
+-----
+Carolyn's trying to coerce me.
+
 April 7, 2016
 =============
 Real eyes  
