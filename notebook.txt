@@ -32,3 +32,7 @@ finished oop project. feels good
 Chris
 =====
 Every time I finish some assignment I wish I still had tsum tsum on my phone.
+
+John
+=======
+And in the wee hours of the morning, I realized, does leader election really even matter that much? Surely not as much as not going over the 80 character limit per line.
