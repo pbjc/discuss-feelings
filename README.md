@@ -65,7 +65,7 @@ April 8, 2016
 =============
 
 algo discussion gold star list:  
-Keivaun Waugh (I feel honored to be at the top of the list)
+Keivaun Waugh (I feel honored to be at the top of the list)  
 Jacob van Geffen  
 Arjun Karpur  
 Stephen Ngo  
