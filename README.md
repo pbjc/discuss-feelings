@@ -28,6 +28,10 @@ Anjie
 ------
 ALMOST FORGOT TO DO THIS TODAY
 
+Chris
+-----
+Distributed. Why.
+
 April 8, 2016
 =============
 
