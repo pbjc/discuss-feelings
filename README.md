@@ -21,6 +21,10 @@ if I would care enough about particular answers that I would be able to use all
 my candies up on that. Surely there must be other uses for Miitomo candies. I
 will look into this issue later.
 
+Anjie
+------
+ALMOST FORGOT TO DO THIS TODAY
+
 April 8, 2016
 =============
 
