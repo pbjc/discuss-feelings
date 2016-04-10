@@ -25,6 +25,13 @@ also i think i have spending problems lol
 
 April 9, 2016
 =============
+
+more readings:
+https://medium.com/@paulrobertlloyd/freelancing-year-one-a9b149e674f3
+http://www.theatlantic.com/health/archive/2014/09/the-simple-life-in-a-dumpster/379947/ (thanks to sid for this one)
+https://perrera.com/blog/design-for-open-source
+http://nearthespeedoflight.com/article/2016_04_05_programming_is_performance_art
+
 distributed
 -x
 
