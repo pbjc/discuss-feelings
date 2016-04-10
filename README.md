@@ -8,6 +8,19 @@ Angela
 ------
 i ran my first 5k today. i am so proud of me :')
 
+Raymond
+-------
+After much effort and many used game tickets, I was finally able to get the
+main parts of the ninja costume set. Unfortunately, the katana on the back was
+too hard to get, and I have used up all of my game tickets so any further plays
+of Miitomo Drop will require coins, which idk if I want to spend. Since missing
+an item in Miitomo Drop means you instead win candy, I now have a bunch of
+virtual candy I'm not sure what to do with. I know it can be spent on seeing
+other people's answers to specific questions if I care enough, but I don't know
+if I would care enough about particular answers that I would be able to use all
+my candies up on that. Surely there must be other uses for Miitomo candies. I
+will look into this issue later.
+
 April 8, 2016
 =============
 
