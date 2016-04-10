@@ -4,6 +4,9 @@ Talk about whatever. Do it daily. Get t-shirt.
 
 April 9, 2016
 =============
+distributed
+-x
+
 Angela
 ------
 i ran my first 5k today. i am so proud of me :')
