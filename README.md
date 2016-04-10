@@ -17,6 +17,12 @@ Angela
 ------
 i downloaded miitomo to be like raymond but my only friends are raymond and mica.
 
+Sarah
+-----
+i forgot to discuss  my feelings yesterday :(
+
+also i think i have spending problems lol
+
 April 9, 2016
 =============
 distributed
@@ -66,7 +72,6 @@ Michael Gregory
 Virin Tamprateep  
 Guneet Dhillon  
 Sam Maynard
-
 
 CK
 ------
