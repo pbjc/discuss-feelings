@@ -32,6 +32,10 @@ Chris
 -----
 Distributed. Why.
 
+Paul
+----
+Arjun says hey. Became social dance CA. Time to partay
+
 April 8, 2016
 =============
 
