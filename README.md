@@ -2,6 +2,27 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 10, 2016 
+=============
+
+Anjie
+------
+since I'm awake anyway I might as well update this :,)
+
+Chris
+-----
+I sincerely hope that yall are still working on other projects in the meantime. Like this is a nice placeholder for days when you're too busy to even do a codeforces problem (or any coding for that matter), but I really really hope this isn't the only thing you're doing. Also, please keep in mind that other people on the organizing team already know about this. Just as a head's up.
+
+Angela
+------
+i downloaded miitomo to be like raymond but my only friends are raymond and mica.
+
+Sarah
+-----
+i forgot to discuss  my feelings yesterday :(
+
+also i think i have spending problems lol
+
 April 9, 2016
 =============
 
@@ -10,6 +31,9 @@ https://medium.com/@paulrobertlloyd/freelancing-year-one-a9b149e674f3
 http://www.theatlantic.com/health/archive/2014/09/the-simple-life-in-a-dumpster/379947/ (thanks to sid for this one)
 https://perrera.com/blog/design-for-open-source
 http://nearthespeedoflight.com/article/2016_04_05_programming_is_performance_art
+
+distributed
+-x
 
 Angela
 ------
@@ -32,6 +56,14 @@ Anjie
 ------
 ALMOST FORGOT TO DO THIS TODAY
 
+Chris
+-----
+Distributed. Why.
+
+Paul
+----
+Arjun says hey. Became social dance CA. Time to partay
+
 April 8, 2016
 =============
 
@@ -47,7 +79,6 @@ Michael Gregory
 Virin Tamprateep  
 Guneet Dhillon  
 Sam Maynard
-
 
 CK
 ------
