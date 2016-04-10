@@ -9,6 +9,10 @@ Anjie
 ------
 since I'm awake anyway I might as well update this :,)
 
+Chris
+-----
+I sincerely hope that yall are still working on other projects in the meantime. Like this is a nice placeholder for days when you're too busy to even do a codeforces problem (or any coding for that matter), but I really really hope this isn't the only thing you're doing. Also, please keep in mind that other people on the organizing team already know about this. Just as a head's up.
+
 April 9, 2016
 =============
 distributed
