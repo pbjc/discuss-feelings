@@ -5,6 +5,13 @@ Talk about whatever. Do it daily. Get t-shirt.
 April 10, 2016 
 =============
 
+Chris
+-----
+Had time to do makeup today --> good Monday ahead? Does this mean Paxos will finish itself??
+
+April 10, 2016 
+=============
+
 Anjie
 ------
 since I'm awake anyway I might as well update this :,)
