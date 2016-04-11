@@ -27,6 +27,10 @@ i forgot to discuss  my feelings yesterday :(
 
 also i think i have spending problems lol
 
+Raymond
+-------
+I have discoverd who Zephyr is. I am at peace.
+
 April 9, 2016
 =============
 
