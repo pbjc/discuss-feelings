@@ -19,6 +19,10 @@ Miitomo interactions for today appear to not earn me coins. I'm not sure what's
 up with that, but I suspect I should be discouraged from late night Miitomo
 consumption in the future.
 
+Paul
+----
+Met with Doug for the first time today. Would recommend.
+
 April 10, 2016 
 =============
 
