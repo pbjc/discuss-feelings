@@ -8,7 +8,7 @@ Angela
 ------
 it's past midnight.
 "i need to stop writing entire papers the day they're due," i say.
-"tell me about it," replies my roommate as she starts on an 8-page paper due the next morning.
+"tell me about it," replies my roommate as she begins writing an 8-page paper due the next morning.
 
 April 11, 2016
 ==============
