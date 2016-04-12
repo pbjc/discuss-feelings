@@ -8,19 +8,16 @@ Angela
 ------
 i still get my dad to book my plane tickets for me because i'm scared.
 
+Chris
+-----
+Had time to do makeup today --> good Monday ahead? Does this mean Paxos will finish itself??
+
 Raymond
 -------
 I viewed many Miitomo answers early in the day at like 2am. As a result, my
 Miitomo interactions for today appear to not earn me coins. I'm not sure what's
 up with that, but I suspect I should be discouraged from late night Miitomo
 consumption in the future.
-
-April 10, 2016 
-=============
-
-Chris
------
-Had time to do makeup today --> good Monday ahead? Does this mean Paxos will finish itself??
 
 April 10, 2016 
 =============
