@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 13, 2016
+==============
+
+Chris
+-----
+commit today and you'll be at one week!
+
 April 12, 2016
 ==============
 
