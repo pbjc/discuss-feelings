@@ -4,6 +4,12 @@ Talk about whatever. Do it daily. Get t-shirt.
 
 April 12, 2016
 ==============
+
+ANJIE
+------
+CAROLYN CHRIS N CK (WOW ALL C'S) ARE THE REAL MVP'S FOR COMING OUT TO SEE ME TONIGHT  
+i luv y'all thx guys  
+
 Angela
 ------
 it's past midnight.  
