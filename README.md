@@ -20,7 +20,7 @@ ANJIE
 ------
 CAROLYN CHRIS N CK (WOW ALL C'S) ARE THE REAL MVP'S FOR COMING OUT TO SEE ME TONIGHT  
 i luv y'all thx guys  
-
+ur gr8 2 anjie !!! 
 Angela
 ------
 it's past midnight.  
