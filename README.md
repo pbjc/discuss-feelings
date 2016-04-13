@@ -5,6 +5,10 @@ Talk about whatever. Do it daily. Get t-shirt.
 April 12, 2016
 ==============
 
+Michael
+-------
+Planned on doing codeforces, but declarative messed me up.
+
 ANJIE
 ------
 CAROLYN CHRIS N CK (WOW ALL C'S) ARE THE REAL MVP'S FOR COMING OUT TO SEE ME TONIGHT  
