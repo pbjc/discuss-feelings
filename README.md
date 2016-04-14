@@ -2,6 +2,19 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 14, 2016
+==============
+
+Raymond
+-------
+I have made it past my first week of Miitomo, and I am not getting the first
+week bonuses, so my game ticket and coin incomes have dropped dramatically. I
+will have to conserve my assets for the future if I want to enjoy the finest
+clothing the Shop has to offer. A potential source of game tickets are from the
+Nintendo Rewards, but those are also finite because apparently there is a limit
+to how many game tickets you can claim per month. It doesn't help that they
+introduce new items to the shop every day. Life is so unfair.
+
 April 13, 2016
 ==============
 
@@ -14,7 +27,7 @@ Chris
 -----
 commit today and you'll be at one week!
 
-Raymond
+Anjie
 -----
 yes chris sun
 
