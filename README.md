@@ -5,6 +5,11 @@ Talk about whatever. Do it daily. Get t-shirt.
 April 13, 2016
 ==============
 
+more readings! (dunno if anyone actually reads these hahaha)
+http://endlessparentheses.com/running-emacs-on-android.html
+http://hello-world.io/death-of-a-programmer-life-of-a-farmer/
+http://www.haskellforall.com/2016/04/worst-practices-should-be-hard.html?m=1
+
 Chris
 -----
 commit today and you'll be at one week!
