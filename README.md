@@ -15,6 +15,10 @@ Nintendo Rewards, but those are also finite because apparently there is a limit
 to how many game tickets you can claim per month. It doesn't help that they
 introduce new items to the shop every day. Life is so unfair.
 
+Chris
+-----
+I'm sorry for your struggles Raymond.
+
 Paul
 ----
 Best weekday: Wednesday
