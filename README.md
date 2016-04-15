@@ -24,6 +24,10 @@ Paul
 Best weekday: Wednesday
 Worst weekday: Thursday
 
+Anjie
+------
+MONGOLIAN HOTPOT HAS TOO MUCH OF A WAIT
+
 April 13, 2016
 ==============
 
