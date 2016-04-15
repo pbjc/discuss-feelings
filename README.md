@@ -27,7 +27,7 @@ Worst weekday: Thursday
 Anjie
 ------
 MONGOLIAN HOTPOT HAS TOO MUCH OF A WAIT
-
+same
 April 13, 2016
 ==============
 
