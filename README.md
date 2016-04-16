@@ -2,6 +2,17 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 16, 2016
+==============
+
+Paul
+----
+It's Paxos time
+
+April 15, 2016
+==============
+Errbody forgot
+
 April 14, 2016
 ==============
 
@@ -21,7 +32,7 @@ I'm sorry for your struggles Raymond.
 
 Paul
 ----
-Best weekday: Wednesday
+Best weekday: Wednesday  
 Worst weekday: Thursday
 
 Anjie
