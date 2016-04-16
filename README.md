@@ -9,6 +9,17 @@ Paul
 ----
 It's Paxos time
 
+
+Raymond
+-------
+Nintendo beefed up the Nintendo Rewards available, so there are more virtual
+items I can strive for. I didn't open Miitomo at all yesterday, which makes me
+sad because yesterday's reward looks like it was 500 coins, which I would
+gladly appreciate. Of course, I might be mistaken about how Nintendo implements
+daily rewards. Currently, I think they make each day of the month have its own
+daily reward, but it's also possible that they make everyone get the same daily
+rewards in sequence, no matter if you skip a day or not.
+
 April 15, 2016
 ==============
 Errbody forgot
