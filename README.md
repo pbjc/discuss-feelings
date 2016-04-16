@@ -20,6 +20,12 @@ daily rewards. Currently, I think they make each day of the month have its own
 daily reward, but it's also possible that they make everyone get the same daily
 rewards in sequence, no matter if you skip a day or not.
 
+Angela
+------
+it seems like i haven't been committing, but really, i've just been working on my website  
+i have so much homework this weekend it's crazy and i might not sleep (didn't think that would happen again after last semester)  
+anyway, i got this really cool art book from the library and i wanted to buy one for myself but it's out of print and costs $150 on amazon rip
+
 April 15, 2016
 ==============
 Errbody forgot
