@@ -5,14 +5,18 @@ Talk about whatever. Do it daily. Get t-shirt.
 April 17, 2016
 ==============
 
-http://www.theguardian.com/news/commentisfree/2016/apr/10/money-offshore-corrupt-democracy-political-influence
-http://spaceandtim.es/projects/hosny  <-- this one is especially cool
-https://www.jacobinmag.com/2014/10/les-simerables/
+http://www.theguardian.com/news/commentisfree/2016/apr/10/money-offshore-corrupt-democracy-political-influence  
+http://spaceandtim.es/projects/hosny  <-- this one is especially cool  
+https://www.jacobinmag.com/2014/10/les-simerables/  
 
 
 Chris
 -----
 I cri
+
+Paul
+----
+What are you supposed to wear when it's hot, humid, and raining heavily?
 
 April 16, 2016
 ==============
