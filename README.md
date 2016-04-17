@@ -9,6 +9,10 @@ http://www.theguardian.com/news/commentisfree/2016/apr/10/money-offshore-corrupt
 http://spaceandtim.es/projects/hosny  <-- this one is especially cool  
 https://www.jacobinmag.com/2014/10/les-simerables/  
 
+CK
+-----
+
+I FINISHED MY OS ASSIGNMENT IM SO HAPPY RN
 
 Chris
 -----
