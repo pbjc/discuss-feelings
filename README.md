@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 17, 2016
+==============
+
+Chris
+-----
+I cri
+
 April 16, 2016
 ==============
 
