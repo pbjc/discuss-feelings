@@ -10,6 +10,10 @@ Chris
 Tried to go to the gym this morning since I didn't have Ambassadors office hours, but Gregory didn't open until 10 am today. Clearly the universe didn't want me to exercise, so I resigned to my fate and went back to shower instead.
 Also, some people on slither.io are really mean.
 
+Raymond
+-------
+I got the ninja sword I needed to complete my set.
+
 April 17, 2016
 ==============
 
