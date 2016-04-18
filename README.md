@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 18, 2016
+==============
+
+Chris
+-----
+Tried to go to the gym this morning since I didn't have Ambassadors office hours, but Gregory didn't open until 10 am today. Clearly the universe didn't want me to exercise, so I resigned to my fate and went back to shower instead.
+
 April 17, 2016
 ==============
 
