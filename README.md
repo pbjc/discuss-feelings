@@ -13,6 +13,7 @@ Also, some people on slither.io are really mean.
 Raymond
 -------
 I got the ninja sword I needed to complete my set.
+^Congrats - it's nice to see people accomplishing things still
 
 April 17, 2016
 ==============
