@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 21, 2016
+==============
+Angela
+------
+i don't understand the college students celebrating 4/20. unless u live on campus, u can smoke p much anytime u want.  
+today i had my citizenship ceremony. it was the biggest waste of time in the world, and it's unbelievable the extent of how incompetent civil servants are.
+
 April 19, 2016
 ==============
 
