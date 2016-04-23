@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 22, 2016
+==============
+
+Chris
+-----
+Oh no oh no must make it in time for commit.
+
 April 21, 2016
 ==============
 Angela
