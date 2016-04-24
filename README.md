@@ -2,6 +2,18 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 23, 2016
+==============
+
+Raymond
+-------
+One by one I'm seeing some of my friends on Miitomo stop appearing. It's kinda
+sad because I felt like Miitomo had great promise for me to catch up with my
+high school friends. Sometimes, Nintendo asks us the same question again to see
+if we have an updated answer, which I think is actually a pretty good idea
+because my opinions on things like current events and how I'm feeling change
+with time (and with the amount of Distributed I have to do).
+
 April 22, 2016
 ==============
 
