@@ -5,6 +5,13 @@ Talk about whatever. Do it daily. Get t-shirt.
 April 24, 2016
 ==============
 
+Chris
+-----
+Can't believe I missed out on 2 days of Miitomo updates idk what happened.
+
+April 24, 2016
+==============
+
 Raymond
 -------
 The only high school friends that still seem to be active on Miitomo are two
