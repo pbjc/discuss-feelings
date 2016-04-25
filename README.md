@@ -2,6 +2,16 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 24, 2016
+==============
+
+Raymond
+-------
+The only high school friends that still seem to be active on Miitomo are two
+current freshmen. I don't even know which colleges they go to now. It's weird
+to be learning more about them on a more personal level based on their answers
+to Miitomo's questions, yet I don't know that important detail.
+
 April 23, 2016
 ==============
 
