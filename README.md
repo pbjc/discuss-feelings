@@ -2,6 +2,10 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 26, 2016
+==============
+i thought the distributed homework was due thursday. it's due tomorrow.
+
 April 24, 2016
 ==============
 
