@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 27, 2016
+==============
+
+Raymond
+-------
+New Miitomo Drop games give me life.
+
 April 26, 2016
 ==============
 i thought the distributed homework was due thursday. it's due tomorrow.
