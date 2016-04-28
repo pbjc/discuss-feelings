@@ -7,11 +7,11 @@ April 27, 2016
 
 Raymond
 -------
-New Miitomo Drop games give me life.
+New Miitomo Drop games give me life. <-- Life that is quickly sucked away by distributed?
 
 April 26, 2016
 ==============
-i thought the distributed homework was due thursday. it's due tomorrow.
+i thought the distributed homework was due thursday. it's due tomorrow. <-- I have nothing but sympathy for this poor soul. Although pretty much everyone I know is cashing in on a slip day so that might be why this impression was made.
 
 April 24, 2016
 ==============
