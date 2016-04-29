@@ -5,6 +5,13 @@ Talk about whatever. Do it daily. Get t-shirt.
 April 27, 2016
 ==============
 
+Chris
+-----
+Miserable day
+
+April 27, 2016
+==============
+
 Raymond
 -------
 New Miitomo Drop games give me life. <-- Life that is quickly sucked away by distributed?
