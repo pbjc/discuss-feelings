@@ -2,12 +2,16 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
-April 27, 2016
+April 28, 2016
 ==============
 
 Chris
 -----
 Miserable day
+
+Raymond
+-------
+I'm running low on game tickets. I can't go on like this.
 
 April 27, 2016
 ==============
