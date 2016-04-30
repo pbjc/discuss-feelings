@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 30, 2016
+==============
+
+Paul
+----
+Is Price even human
+
 April 29, 2016
 ==============
 
