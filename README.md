@@ -2,6 +2,16 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+April 29, 2016
+==============
+
+Raymond
+-------
+Recently I was informed of the new Kingdom Hearts game that is sucking one of
+my friends away from Miitomo. I kinda wish I had a tablet or something so I can
+put all my battery draining and ridiculously large apps on a separate device so
+my phone would not be crap.
+
 April 28, 2016
 ==============
 
