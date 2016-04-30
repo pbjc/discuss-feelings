@@ -12,6 +12,10 @@ my friends away from Miitomo. I kinda wish I had a tablet or something so I can
 put all my battery draining and ridiculously large apps on a separate device so
 my phone would not be crap.
 
+Chris
+-----
+I promise to commit real things this weekend.
+
 April 28, 2016
 ==============
 
