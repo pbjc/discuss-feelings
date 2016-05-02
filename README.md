@@ -2,6 +2,18 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+May 1, 2016
+===========
+
+Raymond
+-------
+One of the Miitomo questions I answered recently asked me which celebrity I
+shared a birthday with. I looked it up on Wikipedia, and found out I shared a
+birthday with Neil Diamond. He was the only person on the list I had heard of,
+but I don't know much about Neil Diamond besides the fact that he was mentioned
+in the Lonely Island's "Cool Guys Don't Look at Explosions". Neil sounds like a
+cool guy.
+
 April 30, 2016
 ==============
 
