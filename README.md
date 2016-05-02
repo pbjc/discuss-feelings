@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+May 2, 2016
+===========
+
+Raymond
+-------
+I have somehow found myself dressing as a white poodle in Miitomo.
+
 May 1, 2016
 ===========
 
