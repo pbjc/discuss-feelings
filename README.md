@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+May 5, 2016
+===========
+
+Raymond
+-------
+I haven't played Miitomo today yet. I'm sad.
+
 May 3, 2016
 ===========
 
