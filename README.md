@@ -2,6 +2,16 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+May 6, 2016
+===========
+
+Raymond
+-------
+I spent coins on Miitomo drop, and won mostly candy, but then the very next
+day, I got 3 game tickets from daily bonus, and I got way better things each
+time I used them. Moral of story, don't pay coins for stuff you can get for
+free.
+
 May 5, 2016
 ===========
 
