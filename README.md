@@ -2,6 +2,13 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+May 9, 2016
+===========
+
+CK
+-------
+OS is going to kill me.
+
 May 6, 2016
 ===========
 
