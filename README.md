@@ -2,6 +2,15 @@ discuss-feelings
 ================
 Talk about whatever. Do it daily. Get t-shirt.
 
+May 16, 2016
+============
+
+Raymond
+-------
+I binge-read every answer available to me on Miitomo using all of my extra
+candies. My life is complete. It was a good run, and now I will uninstall
+Miitomo.
+
 May 9, 2016
 ===========
 
